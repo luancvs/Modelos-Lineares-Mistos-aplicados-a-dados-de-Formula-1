@@ -1,1 +1,0 @@
-# Modelos-Lineares-Mistos-aplicados-a-dados-de-Formula-1
